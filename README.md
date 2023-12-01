@@ -3,6 +3,8 @@ Kuro No Reborn & Coming Back Stronger!! Just another gogoscraper, and allanime s
 
 I may not get started on this for a while, or may just give up..
 
+[Mega Back-Up](https://mega.nz/folder/tD9ilL5Q#gjDd7fhsSWkPdicStaQYqg)
+
 My Discord Server/Group Chat: Not available yet..
 
 Official GitHub: [HERE](https://github.com/deceptions/no)
