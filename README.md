@@ -3,6 +3,8 @@ Kuro No Reborn & Coming Back Stronger!! Just another gogoscraper, and allanime s
 
 Idk when or if I will do this, I may not get started on this for a while, or may just give up..
 
+Give me ideas to rebrand, new app name and logo! Please 🙏🥺
+
 [Mega Back-Up](https://mega.nz/folder/tD9ilL5Q#gjDd7fhsSWkPdicStaQYqg)
 
 My Discord Server/Group Chat: Not available yet..
