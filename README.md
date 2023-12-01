@@ -10,9 +10,9 @@ Idk when or if I will do this, I may not get started on this for a while, or may
 
 Give me ideas to rebrand, new app name and logo! Please 🙏🥺
 
-[Mega Back-Up](https://mega.nz/folder/tD9ilL5Q#gjDd7fhsSWkPdicStaQYqg)
+[MEGA Back-Up](https://mega.nz/folder/tD9ilL5Q#gjDd7fhsSWkPdicStaQYqg)
 
-My Discord Server/Group Chat: Not available yet..
+My Discord Server/Group Chat: [OPEN NOW](https://discord.com/invite/E4Ezmgg7Ka)
 
 Official GitHub: [HERE](https://github.com/deceptions/no)
 
