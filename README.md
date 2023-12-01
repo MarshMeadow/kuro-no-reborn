@@ -1,4 +1,4 @@
-# Kuro No Reborn
+# Kuro No Reborn (Nekomo)
 
 ![4](https://github.com/MarshMeadow/kuro-no-reborn/assets/88599122/ab8e110d-0194-4c4d-af8e-6a7720633b67)
 
