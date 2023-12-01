@@ -17,4 +17,4 @@ Official Downlaods: Android.. APK: [Mobile](https://github.com/deceptions/no/rel
 
 ----
 
-**Note that! these are just scrappers and do not store any anime on servers.**
+**Note that! these are just scrappers and do not store any anime on it's servers.**
