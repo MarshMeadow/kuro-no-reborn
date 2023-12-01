@@ -9,6 +9,8 @@ My Discord Server/Group Chat: Not available yet..
 
 Official GitHub: [HERE](https://github.com/deceptions/no)
 
+[Official backup just in case of DMCA :)](https://gitee.com/deceptionss/no)
+
 OG Dev: [Deceptions](https://github.com/deceptions)
 
 Official Discord Server: [HERE](https://discord.gg/YgeFkTMmxh)
