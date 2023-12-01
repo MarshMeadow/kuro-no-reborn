@@ -1,8 +1,10 @@
 # Kuro No Reborn
 Kuro No Reborn & Coming Back Stronger!! Just another gogoscraper, and allanime scrapper, based on the leaked shiro source code..
 
-My Discord Server: Not available yet..
+My Discord Server/Group Chat: Not available yet..
 
-Official GitHub: https://github.com/deceptions/no
-OG Dev: https://github.com/deceptions
-Official Discord server: https://discord.gg/YgeFkTMmxh
+Official GitHub: [HERE](https://github.com/deceptions/no)
+
+OG Dev: [Deceptions](https://github.com/deceptions)
+
+Official Discord Server: [HERE](https://discord.gg/YgeFkTMmxh)
