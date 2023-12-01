@@ -1,6 +1,6 @@
 # Kuro No Reborn
 
-![3](https://github.com/MarshMeadow/kuro-no-reborn/assets/88599122/8e2788f2-89bc-4086-bd76-6a3968a77c88)
+![4](https://github.com/MarshMeadow/kuro-no-reborn/assets/88599122/ab8e110d-0194-4c4d-af8e-6a7720633b67)
 
 Kuro No Reborn & Coming Back Stronger!! Just another gogoscraper, and allanime scrapper, based on the leaked Shiro (a dead private anime site/app that I loved so much, sad..) source code..
 
