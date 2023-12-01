@@ -1,6 +1,8 @@
 # Kuro No Reborn
 Kuro No Reborn & Coming Back Stronger!! Just another gogoscraper, and allanime scrapper, based on the leaked Shiro (a dead private anime site/app that I loved so much, sad..) source code..
 
+Dev info: the og dec is being quiet, and is no longer doing anything, and the app is being buggy, so I wanna take it in my own hands! 
+
 Idk when or if I will do this, I may not get started on this for a while, or may just give up..
 
 Give me ideas to rebrand, new app name and logo! Please 🙏🥺
