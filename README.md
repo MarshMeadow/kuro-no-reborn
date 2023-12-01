@@ -1,4 +1,6 @@
-# No
-Just another gogoscraper, based on the leaked shiro source code
+# Kuro No Reborne
+Just another gogoscraper, and allanime scrapper, based on the leaked shiro source code..
 
-Discord server: https://discord.gg/YgeFkTMmxh
+My Discord Server: Not avalible yet..
+
+Official Discord server: https://discord.gg/YgeFkTMmxh
