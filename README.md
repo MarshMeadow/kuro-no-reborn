@@ -1,3 +1,3 @@
 # Kuro No Reborn (Nekomo)
 
-Sorry, we have moved.. ):
+Sorry, we/nekomo have moved here: [GitHub](https://github.com/MarshMeadow/Nekomo)
